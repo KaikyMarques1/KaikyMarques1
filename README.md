@@ -12,3 +12,6 @@ Meu nome é Kaiky🌟
   Ig: marques_es;🧃
   
   E-mail: marqueskaiky355@gmail.com;📬
+
+
+  ![](https://media1.tenor.com/m/3OBovY2Wt64AAAAC/bobamor.gif)
